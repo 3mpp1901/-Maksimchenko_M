@@ -1,2 +1,2 @@
-# -Maksimchenko_M
+# Maksimchenko_M
  Student: Maksimchenko M
